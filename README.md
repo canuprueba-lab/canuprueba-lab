@@ -23,4 +23,4 @@ Tras mi formación especializada en **4Geeks Academy** y mi trayectoria previa e
 
 * 💼 **LinkedIn:** [linkedin.com/in/carlos-navarro1](https://www.linkedin.com/in/carlos-navarro1)
 * 📧 **Email:** [canunav.u@gmail.com](mailto:canunav.u@gmail.com)
-[CV]([mailto:canunav.u@gmail.com](https://drive.google.com/file/d/1dX6ylVo2K3Mg4K6nNhTjBQ9hpR7LtvBy/view?usp=sharing))
+* [CV]([mailto:canunav.u@gmail.com](https://drive.google.com/file/d/1dX6ylVo2K3Mg4K6nNhTjBQ9hpR7LtvBy/view?usp=sharing))
